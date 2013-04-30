@@ -9,3 +9,4 @@ Website phim chuyên mục về phim như: phim hành động, phim tình cảm,
 Website Phim 99 có giao diện thân thiện với mọi người, bố cục site trông dễ nhìn,
 và đặc biệt là tập hợp các tập phim có chất lượng cao, tốc độ
 
+http://phim99.info/phim-18 (Phim tâm lý 18+ dành cho người lớn)
